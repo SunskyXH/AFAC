@@ -15,3 +15,4 @@
 6. 虽然我大概能猜到你不会用人人这种东西但是我觉得你有必要上去看一下[社团的人人小站](http://zhan.renren.com/fantasyuestc?checked=true) :)
 7. 当然一来就跑团对于之前没有接触过的同学来说是有些困难，~~那么来一把昆特牌吧~~ 那么可以通过桌游的方式来渐渐熟悉 你想知道我们有[哪些桌游吗？](https://github.com/SunskyXH/FACT/blob/master/TGAME.md) 
 8. 如果你同时对科幻感兴趣或者本来就是被科幻吸引来的 那么请加入奇幻社科幻分舵：108389153
+9. 社团[资源网盘](http://pan.baidu.com/s/1jG1tB9c)**(内含福利 密码wpyx)**
